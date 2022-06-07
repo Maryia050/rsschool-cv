@@ -1,2 +1,2 @@
 # rsschool-cv
-Maryia CV
+https://Maryia050.github.io/rsschool-cv/cv
